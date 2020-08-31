@@ -1,2 +1,2 @@
 # realestateco
-REALESTATE CO domain
+REAL ESTATE CO domain
