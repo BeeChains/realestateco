@@ -1,4 +1,5 @@
-# Shaping Reality REAL ESTATE CO welcomes you
+# REAL ESTATE CO welcomes you!
+# We are SHAPING REALITY!
 
 Selling Top Level Domains on the [Handshake](https://handshake.org/) blockchain!! Get your REALESTATE on the New Web now!!
 
