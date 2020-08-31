@@ -1,7 +1,7 @@
 # REAL ESTATE CO welcomes you!
 # We are SHAPING REALITY!
 
-Manifesting Top Level Domains on the [Handshake](https://handshake.org/) blockchain!! Get your REALESTATE on the New Web now!!
+Manifesting Top Level Domains on the [Handshake](https://handshake.org/) blockchain!! Get your [REALESTATELLC](http://http:shapereality.realestatellc/) on the New Web now!!
 
 - [admin.websecurityspecialist/](http://admin.websecurityspecialist/)
 
